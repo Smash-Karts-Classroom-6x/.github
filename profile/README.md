@@ -2,6 +2,8 @@
 
 **Smash Karts** is an **insanely fun, fast-paced multiplayer battle game** where fearless drivers enter a deadly arena in high-speed karts armed with explosive weapons. Race, drift, shoot, and survive in this **epic combat kart game** that takes **racing warfare** to the next level!
 
+## <a href="https://1kb.link/n4XWK7">👉 Play Smash Karts Unblocked Games NOW 👈</a>
+
 ---
 
 ### 🚗 What is Smash Karts?
